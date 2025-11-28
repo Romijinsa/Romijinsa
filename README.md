@@ -19,6 +19,5 @@
   <img src="https://artwork.neocities.org/stamps/stamp198.gif">
   <img src="https://artwork.neocities.org/stamps/db8sapz-b91eccd9-2d7f-41e9-8665-1a03d8f9808d.gif">
    <img src="https://artwork.neocities.org/stamps/stamp45.gif">
-    <img src="https://artwork.neocities.org/stamps/stamp40.gif">
-     <img src="https://artwork.neocities.org/stamps/stamp228.gif">
-      <img src="">
+   <img src="https://artwork.neocities.org/stamps/stamp228.gif">
+      
