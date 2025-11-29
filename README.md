@@ -1,38 +1,126 @@
-<p style="background-image: url('https://i.pinimg.com/736x/99/42/a1/9942a19515cb9b75c2b6ac8854bb4b6d.jpg');">
 
-<p align="center" width="100%">
-   <img src="https://artwork.neocities.org/stamps/stamp201.gif"> 
-<p align="center" 
- <p align="center"><strong> "she then went on to say, 'do thee truly f'rgive yourself f'r such selfish acts?'"
- </p>
+ <img width="3000" height="100" alt="image" src="https://i.postimg.cc/TYg39mjY/IMG_8414.png" />
+
+
+
+<p align="center"
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=1000&size=26&duration=5003&pause=3013&color=83e6bc&width=435&lines=%E2%98%85Universes+collide+within+me%E2%98%85" alt="Typing SVG" /></a>
  
  
      
-<img width="2048" height="1423" alt="tumblr_75fc7e8097692c19abca18aaa70f1e5f_6acadeaf_2048" src="https://i.pinimg.com/736x/a8/d9/61/a8d961083cdb023e7f88512b838e9aa1.jpg" />
+<img width="2048" height="1423" alt="tumblr_75fc7e8097692c19abca18aaa70f1e5f_6acadeaf_2048" src="https://i.postimg.cc/sgjdLWY9/IMG_9654.png" />
      </p>
-    <p align="center"><strong> RANDOM OTHER GIFS !   
+    <p align="center"><strong>   
     </p>
+    
 
 
- <img src="https://artwork.neocities.org/stamps/ddfaq8r-584302dd-f17b-4c0c-b6a8-8c919a5ff496.gif">
- <img src="https://artwork.neocities.org/stamps/neo/space-stamp.gif">
- <img src="https://artwork.neocities.org/stamps/stamp158.gif">
- <img src="https://artwork.neocities.org/stamps/tumblr_1a8e9aa0f09b705a4af5e307f9abb901_29ca6b7d_1280.gif">
-  <img src="https://artwork.neocities.org/stamps/stamp198.gif">
-  <img src="https://artwork.neocities.org/stamps/db8sapz-b91eccd9-2d7f-41e9-8665-1a03d8f9808d.gif">
-   <img src="https://artwork.neocities.org/stamps/stamp45.gif">
-   <img src="https://artwork.neocities.org/stamps/stamp228.gif">
-
+ <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+  <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+   <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+    <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+     <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+      <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+       <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+        <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+         <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+          <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+           <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+            <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+             <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+              <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+               <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+                <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+                 <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+                 <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+  <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+   <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+    <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+     <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+      <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+       <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+        <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+         <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+          <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+           <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+            <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+             <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+              <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+               <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+                <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+                 <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+                 <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+  <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+   <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+    <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+     <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+      <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+       <img src="https://i.postimg.cc/HnK2vv87/IMG_3098.gif">
+   
+      
+              
+<p align="center"
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=1000&size=25&duration=5003&pause=3013&color=adf7d8&width=435&lines=%E2%98%85And+it+wont+let+me+turn+back%E2%98%85" alt="Typing SVG" /></a>
 
 <p align="center" 
  <p align="left"><strong> ────────────────────────⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹────────────────────────
  </p>
-<img src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/03186044-f3d5-4029-af18-2d3cbc028276/d5dc54g-1e0f153b-7391-4bf3-b5de-a1d7f09143f7.png/v1/fit/w_600,h_509/magical_doremi___group_1_render_by_anouet_d5dc54g-375w-2x.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7ImhlaWdodCI6Ijw9NTA5IiwicGF0aCI6Ii9mLzAzMTg2MDQ0LWYzZDUtNDAyOS1hZjE4LTJkM2NiYzAyODI3Ni9kNWRjNTRnLTFlMGYxNTNiLTczOTEtNGJmMy1iNWRlLWExZDdmMDkxNDNmNy5wbmciLCJ3aWR0aCI6Ijw9NjAwIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmltYWdlLm9wZXJhdGlvbnMiXX0.c-8CImlC2Akv7unq2N3K1wR8wYWIf2tgCxnk9PnqDU0">
+<img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+     <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+     <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+     <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+     <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+    <img src="https://i.postimg.cc/sxpXbvv9/IMG-3038.gif">
+    <img src="https://i.postimg.cc/SKHXMBpR/Kitty-Ice-Cream4.gif">
+   
+    
+   <img src="https://i.pinimg.com/1200x/40/a3/71/40a37140992e8d32a7adf7709a8d660a.jpg">
+    <img  width="3000" height="100" alt="image" src="https://i.postimg.cc/RZtHYL83/IMG_1137.jpg">
+    
    <p align="left" 
  <p align="left"><strong> "Welcome ! here i just say whatever i want 𖦹"
  </p>
   <p align="center" 
- <p align="left"><strong> "pls do not copy or cuddle !unless you ask for concent !"
+ <p align="left"><strong> "pls do not copy or cuddle !unless you ask for concent !" <img src="https://i.postimg.cc/mhfVp14f/238d0be7-original.gif">
  </p>
   <p align="right" 
  <p align="right"><strong> "Puella Magi Madoka Magica for life !! I LOVE CHARLOTTE THE WITCH"
@@ -44,4 +132,22 @@
  <p align="right" 
  <p align="right"><strong> (edit more later !)
  </p>
+ <img src="https://i.postimg.cc/Hsr0BBn1/IMG_0446.gif"> <img src="https://i.postimg.cc/Hsr0BBn1/IMG_0446.gif"> <img src="https://i.postimg.cc/Hsr0BBn1/IMG_0446.gif"> <img src="https://i.postimg.cc/Hsr0BBn1/IMG_0446.gif">
+   <img src="https://i.postimg.cc/9QftSgsX/IMG_0049.gif">
+    <img src="https://i.postimg.cc/Bvkg25YS/IMG_0056.png">
+     <img src="https://i.postimg.cc/G20XWw0w/IMG_9632.gif">
+      <img src="https://i.postimg.cc/28rxdSwZ/IMG_0051.gif">
+       <img src="https://i.postimg.cc/CKz7Zr4r/IMG_0057.gif">
+        <img src="https://i.postimg.cc/Gt1x5Ln6/IMG_0054.png">
+         <img src="https://i.postimg.cc/1RpHNqpS/IMG_0052.png">
+          <img src="https://i.postimg.cc/bwFHjHjx/IMG-0048.png">
+           <img src="https://i.postimg.cc/T30G20d4/IMG_9669.png">
+           <img src="https://i.postimg.cc/jdztmKGK/IMG_9671.png">
+<img src="https://i.postimg.cc/C5yG5rWV/IMG_0991.gif">
+<img src="https://i.postimg.cc/C5yG5rWV/IMG_0991.gif">
+<img src="https://i.postimg.cc/C5yG5rWV/IMG_0991.gif">
+<img src="https://i.postimg.cc/C5yG5rWV/IMG_0991.gif">
+           
+ 
       
+ <img width="1440" height="84" alt="image" src="https://github.com/user-attachments/assets/37f8df47-ac30-4bc0-a785-7afdd74665cf" />
