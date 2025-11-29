@@ -118,15 +118,31 @@
    <img src="https://i.pinimg.com/1200x/40/a3/71/40a37140992e8d32a7adf7709a8d660a.jpg">
     <img  width="3000" height="100" alt="image" src="https://i.postimg.cc/RZtHYL83/IMG_1137.jpg">
     
-   <p align="left" 
- <p align="left"><strong> "Welcome ! here i just say whatever i want 𖦹"
- </p>
-  <p align="center" 
- <p align="left"><strong> "pls do not copy or cuddle !unless you ask for concent !" <img src="https://i.postimg.cc/mhfVp14f/238d0be7-original.gif">
+   <p align="right" 
+ <p align="right"><strong> "Welcome ! here i just say whatever i want 𖦹"
  </p>
   <p align="right" 
- <p align="right"><strong> "Puella Magi Madoka Magica for life !! I LOVE CHARLOTTE THE WITCH"
+ <p align="right"><strong> "pls do not copy or cuddle !unless you ask for concent !" <img src="https://i.postimg.cc/mhfVp14f/238d0be7-original.gif">
  </p>
+  <p align="right" 
+ <p align="right"><strong> "Puella Magi Madoka Magica for life !! I LOVE CHARLOTTLE"
+ </p>
+
+<p align="right" 
+ <p align="right"><strong> N̳A̳M̳E̳S̳ ̳I̳ ̳G̳O̳ ̳B̳T̳
+ </p>
+
+  
+ ── .✦ ᴿᵒᵐⁱ , ᴿᵘᵐⁱ , ᴿᵒᵐⁱ'ʲⁱⁿ
+  
+ ── .✦ ᵢᵥₑ bₑₑₙ ₒₙ ₚₒₙyₜₒwₙ fₒᵣ ₐₗₘₒₛₜ ₅ yₑₐᵣₛ ! 
+ₜₕᵢₛ ᵢₛ ₒₙₑ ₒf ₘy ₙₑwₑᵣ ₐccₒᵤₙₜₛ
+
+✦ ⁱᵐ ¹⁵ ʸᵉᵃʳˢ, ᵗᵘʳⁿⁱⁿᵍ ¹⁶ ⁱⁿ ³ ᵐᵒⁿᵗʰˢ !
+
+✦ ⁱᵐ ᵐᵃⁱⁿˡʸ ᵒⁿˡʸ ᵃᶜᵗⁱᵛᵉ ᵒⁿ ᵖᵒⁿʸ ᵗᵒʷⁿ ᵃⁿᵈ ᶜʰᵃʳᵃᶜᵗᵉʳʰᵘᵇ !
+
+
   <p align="center" 
  <p align="left"><strong> ────────────────────────⊹₊˚‧︵‿₊୨ᰔ୧₊‿︵‧˚₊⊹────────────────────────
  </p>
