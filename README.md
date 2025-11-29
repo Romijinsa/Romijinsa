@@ -117,19 +117,23 @@
     
    <img src="https://i.pinimg.com/1200x/40/a3/71/40a37140992e8d32a7adf7709a8d660a.jpg">
     <img  width="3000" height="100" alt="image" src="https://i.postimg.cc/RZtHYL83/IMG_1137.jpg">
+
+<img src="https://i.postimg.cc/mhfVp14f/238d0be7-original.gif">
+
+<img src="https://i.postimg.cc/mhfVp14f/238d0be7-original.gif">
     
    <p align="right" 
  <p align="right"><strong> "Welcome ! here i just say whatever i want 𖦹"
  </p>
   <p align="right" 
- <p align="right"><strong> "pls do not copy or cuddle !unless you ask for concent !" <img src="https://i.postimg.cc/mhfVp14f/238d0be7-original.gif">
+ <p align="right"><strong> "pls do not copy or cuddle !unless you ask for concent !" 
  </p>
   <p align="right" 
  <p align="right"><strong> "Puella Magi Madoka Magica for life !! I LOVE CHARLOTTLE"
  </p>
 
-<p align="right" 
- <p align="right"><strong> N̳A̳M̳E̳S̳ ̳I̳ ̳G̳O̳ ̳B̳T̳
+<p align="center" 
+ <p align="center"><strong> N̳A̳M̳E̳S̳ ̳I̳ ̳G̳O̳ ̳B̳T̳
  </p>
 
   
@@ -141,6 +145,25 @@
 ✦ ⁱᵐ ¹⁵ ʸᵉᵃʳˢ, ᵗᵘʳⁿⁱⁿᵍ ¹⁶ ⁱⁿ ³ ᵐᵒⁿᵗʰˢ !
 
 ✦ ⁱᵐ ᵐᵃⁱⁿˡʸ ᵒⁿˡʸ ᵃᶜᵗⁱᵛᵉ ᵒⁿ ᵖᵒⁿʸ ᵗᵒʷⁿ ᵃⁿᵈ ᶜʰᵃʳᵃᶜᵗᵉʳʰᵘᵇ !
+
+
+ 
+<table>
+  <tr>
+    <th>
+      $\color{Blue}{\textsf{no booping/kissing or cuddling please ! im not at all comfortable with it}}$ <br>
+      $\color{LightBlue}{\textsf{sometimes ill be offtab, so i apologise for slow reply}}$ <br>
+      $\color{Blue}{\textsf{i might be slow at replying/disconnect from pt}}$ <br>
+      $\color{LightBlue}{\textsf{please try not to ask very personal questions from me}}$ <br>
+      $\color{Blue}{\textsf{as you might know, i am i minor. so anyone -13 and 18+ should not talk with me}}$ <br>
+      $\color{LightBlue}{\textsf{feel free to strike a convo while im not offtab !}}$ <br>
+      $\color{Blue}{\textsf{you can use the codes(as inspo) i use on Github if you think it will help with yours !}}$ <br>
+      $\color{LightBlue}{\textsf{I only friend people who i know personally !}}$ <br>
+</th>
+</tr>
+</table>
+
+
 
 
   <p align="center" 
