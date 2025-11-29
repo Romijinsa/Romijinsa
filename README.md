@@ -1,4 +1,6 @@
+<div id="header" align="center">
 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=Romijinsa&label=𝄞%20&color=54dec5&style=plastic" /> </p>
  <img width="3000" height="100" alt="image" src="https://i.postimg.cc/TYg39mjY/IMG_8414.png" />
 
 
