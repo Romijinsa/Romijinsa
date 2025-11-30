@@ -159,6 +159,7 @@
       $\color{LightBlue}{\textsf{feel free to strike a convo while im not offtab !}}$ <br>
       $\color{Blue}{\textsf{you can use the codes(as inspo) i use on Github if you think it will help with yours !}}$ <br>
       $\color{LightBlue}{\textsf{I only friend people who i know personally !}}$ <br>
+     $\color{LightBlue}{\textsf{also. dont forget ro visit my strawpage ! ╰┈➤ romijinsa.straw.page}}$ <br>
 </th>
 </tr>
 </table>
